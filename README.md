@@ -8,7 +8,7 @@ I work as a FULL STACK WEB DEVELOPER @ Volkswagen Infotainment
 
 You can visit my portfolio at: https://ahmed-eladl.de
 
-you also can contact me at: contact@ahmed-eladl.de
+you can also contact me at: contact@ahmed-eladl.de
 
 
 ## 🌐 Socials:
